@@ -1,1 +1,1 @@
-https://GITHUB-USERNAME.github.io/cv/cv
+https://AleksMST.github.io/cv/cv
