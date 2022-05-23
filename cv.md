@@ -1,18 +1,18 @@
 # Nikita Prudnichenko
 ### IT Manager
-___
+#___
 ### Contact information
 *deleted
 *deleted
 *deleted
-___
+#___
 ### Skills
 *deleted
 *deleted
 *deleted
-___
+#___
 ### Education
 *deleted
-___
+#___
 ### English level
 *deleted
