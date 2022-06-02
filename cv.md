@@ -10,7 +10,7 @@ Phone number: +375 29 899 -- --
 ### Skills
 Critical decision-making
 
-Programming
+Programming C++
 
 Speech
 
