@@ -1,21 +1,21 @@
 # Nikita Prudnichenko
 ### IT Manager
 ### Contact information
-deleted
+Telegram:@outwest-------official
 
-deleted
+Email:aleks.------.02@mail.ru
 
-deleted
+Phone number: +375 29 899 -- --
 
 ### Skills
-deleted
+Critical decision-making
 
-deleted
+Programming
 
-deleted
+Speech
 
 ### Education
-deleted
+VSU named after Masherov
 
 ### English level
-deleted
+A1
